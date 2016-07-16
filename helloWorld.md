@@ -1,7 +1,7 @@
 # Haunted be the "Hello World! Curse"!
 
-     　　　/)─🎓ヘ/)
- 　　　＿／　　　　＼ 
+　    　　/)─🎓ヘ/)
+　　　＿／　　　　＼ 
 　 ／　　　🌟　　　🌟丶
   ｜ 　　　　　　　🐽  | 
 　｜　　　　　　　    ノ 　
