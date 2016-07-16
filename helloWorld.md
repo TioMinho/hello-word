@@ -1,11 +1,11 @@
 # Haunted be the "Hello World! Curse"!
 
-　    　　/)─🎓ヘ/)
-　　　＿／　　　　＼ 
-　 ／　　　🌟　　　🌟丶
-  ｜ 　　　　　　　🐽  | 
-　｜　　　　　　　    ノ 　
-     U￣U￣￣U📝 ￣ ￣
+　    　　/)─🎓ヘ/)\n
+　　　＿／　　　　＼ \n
+　 ／　　　🌟　　　🌟丶\n
+  ｜ 　　　　　　　🐽  | \n
+　｜　　　　　　　    ノ 　\n
+     U￣U￣￣U📝 ￣ ￣\n
      
      /\ This is the "Capivara dos Brother Universitária"
 
