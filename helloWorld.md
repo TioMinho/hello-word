@@ -1,4 +1,12 @@
-# hello-word
+# Haunted be the "Hello World! Curse"!
+
+.    ...   　  /)─🎓ヘ/) <br>
+ 　 ／     　🌟　　🌟丶<br>
+　 ｜　　     　　🐽 　|<br>
+　 ｜　 　  　　　       ノ<br>
+　 U￣U￣￣U📝 <br>
+
+/\ This a ugly "Capivara dos Brother Universitária". I'm sorry it's so ugly.
 
 A bird is not a bread just because it starts with "b".
 
